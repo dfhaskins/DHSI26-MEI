@@ -5,4 +5,4 @@ This arrangement is scored for a double choir of six performers with each 6-part
 
 This arrangement was premiered at the Sun Valley Music Festival in 2017.
 
-(https://dfhaskins.github.io/DHSI26-MEI/verovio.html)
+[Var. 16 from the Goldberg Variations](https://dfhaskins.github.io/DHSI26-MEI/verovio.html)
