@@ -4,3 +4,5 @@ J. S. Bach's Goldberg Variations, BWV 988, published in 1741, remain a central p
 This arrangement is scored for a double choir of six performers with each 6-part choir consisting of Piccolo Trumpet in B-flat, Trumpet in E-flat, 2 Trumpets in C, 2 Trumpets in B-flat. One C Trumpet doubles on a rotary and one B-flat Trumpet doubles on Flugelhorn.
 
 This arrangement was premiered at the Sun Valley Music Festival in 2017.
+
+(https://dfhaskins.github.io/DHSI26-MEI/verovio.html)
