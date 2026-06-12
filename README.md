@@ -7,7 +7,7 @@ This arrangement was premiered at the Sun Valley Music Festival in 2017.
 
 [Var. 16 from the Goldberg Variations](https://dfhaskins.github.io/DHSI26-MEI/verovio.html)
 
-[Var. 16 performed at Sun Valley}(https://ubcca-my.sharepoint.com/:u:/r/personal/david_haskins_ubc_ca/Documents/Recordings/Bach%20BWV%20988%20-%20var.%2016.mp3?csf=1&web=1&e=8AGktg&nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D)
+[Var. 16 performed at Sun Valley](https://ubcca-my.sharepoint.com/:u:/r/personal/david_haskins_ubc_ca/Documents/Recordings/Bach%20BWV%20988%20-%20var.%2016.mp3?csf=1&web=1&e=8AGktg&nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D)
 
 [Complete performance at the Sun Valley Music Festival, 2017]([Bach BWV 988 - var. 16.mp3](https://soundcloud.com/cherry-classics-music/bach-goldberg-variations-for-trumpet-ensemble))
 (Var. 16 starts at 5:55)
